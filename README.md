@@ -1,2 +1,2 @@
-# Bapteme-Georgi
-Ein schöner Tag, an dem wir das Bapteem unseres kleinen Georgi feierten ❤.
+# Taufe-Georgi
+Ein schöner Tag, an dem wir das Taufe unseres kleinen Georgi feierten ❤.
